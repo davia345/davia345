@@ -4,6 +4,8 @@
 
 ## I'm a mother, grandmother, and retired!
 
+<br />
+
 - 🔭 Check out my GitHub profile!
 - 🌱 I’m currently learning A.I. stuff 🤣
 - 👯 I’m looking to obtain some knowledge in A.I.
